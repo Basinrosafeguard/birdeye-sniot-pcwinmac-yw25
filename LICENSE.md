@@ -1,4 +1,4 @@
-# 
+# Léger birdeye sniper bot plugins pour Mac OS | Élite birdeye sniper bot plugins pour PC Windows. Avec connectivité Web3 et détection de rug pull — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
